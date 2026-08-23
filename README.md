@@ -1,6 +1,6 @@
 黑料正能量永不迷路
 
-<a href="https://2ndjcj11.kesang6to.com?https://github.com">→→最/新/观/看/入/口←←</a>
+<a href="https://meertoscer.github.io">→→最/新/观/看/入/口←←</a>
 
 
 黑料门-今日黑料-最新反差免费今日黑料 独家爆料 在线暗黑爆料在线吃瓜免费观看黑料正能量永不迷路今日黑料 独家爆料 正能量黑料门-今日黑料-最新简单介绍
